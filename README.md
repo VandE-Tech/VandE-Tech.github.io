@@ -1,1 +1,0 @@
-# VandE-Tech.github.io
